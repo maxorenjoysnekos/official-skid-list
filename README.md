@@ -51,15 +51,15 @@ Cedo - Creator of Fan client, the same shit client that intent still sells on hi
 Marshy - Some kid who thinks he is a pro hacker by joining clients dev teams and then leaking src (not to mention that he sucks dick for src leaks from masterof13fps, ItS NoT sKid iF ThEy DoNt fInD OuT), Ths client is on my watchlist, whatever obf they use, I. Will. Deobf.
 This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
 
-Energized - Hard on the internet, pussy irl. A fellow brit as myself, except this guy is the type of guy you wouid use the term "Bri'ish' on, salty I deobfed his skid and leaked it to the public, ever since, he has been shitting his pants xD
+Energized - Hard on the internet, pussy irl. A fellow brit as myself, except this guy is the type of guy you wouid use the term "Bri'ish" on, salty I deobfed his skid and leaked it to the public, ever since, he has been shitting his pants xD
 
-Memer - Imagine not knowing a dogsfuck of java and being in a clients dev team, this dumb fuck sucks masrshy off whenever marshy feels depressed about me making fun of him.
+Memer - Imagine not knowing a dogsfuck of java and being in a clients dev team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
 
 Omikron - If you think this guy shouldnt be on this list, you are seriosuly retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin miners until i tried his shit rat, L
 
 LeakedPVP - Helped omikron skid lots of clients and lots of code, he still isnt as bad as omikron though
 
-Heroholland (or whatever his name is) - Still uses blin vanilla fly as a redesky fly, I hade that 2 months ago dude.
+Heroholland (or whatever his name is) - Still uses blink vanilla fly as a redesky fly, I had that 2 months ago dude.
 
 
 
