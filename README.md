@@ -51,6 +51,8 @@ This guy is retarded and cant fix simple errors without his sugar daddy energize
 
 Energized - Hard on the internet, pussy irl. A fellow brit as myself, except this guy is the type of guy you wouid use the term "Bri'ish' on, salty I deobfed his skid and leaked it to the public, ever since, he has been shitting his pants xD
 
+Memer - Imagine not knowing a dogsfuck of java and being in a clients dev team, this dumb fuck sucks masrshy off whenever marshy feels depressed about me making fun of him.
+
 Omikron - If you think this guy shouldnt be on this list, you are seriosuly retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin miners until i tried his shit rat, L
 
 LeakedPVP - Helped omikron skid lots of clients and lots of code, he still isnt as bad as omikron though
