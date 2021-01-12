@@ -46,7 +46,7 @@ Mees - Creator of Remix Client, put a rat in it to get CP for his collection
 
 Cedo - Creator of Fan client, the same shit client that intent still sells on his site, the src that got leaked was a newer version of what was even on the store, showed intent his "Hypixel" fly which infact was actually freecam, pasted autumns values and shit, all in all, a shit autumn paste into an intent base.
 
-Marshy - Some kid who thinks he is a pro hacker by joining clients dev teams and then leaking src (not to mention that he sucks disck for src leaks from masterof13fps, ItS NoT sKid iF ThEy DoNt fInD OuT), Ths client is on my watchlist, whatever obf they use, I. Will. Deobf.
+Marshy - Some kid who thinks he is a pro hacker by joining clients dev teams and then leaking src (not to mention that he sucks dick for src leaks from masterof13fps, ItS NoT sKid iF ThEy DoNt fInD OuT), Ths client is on my watchlist, whatever obf they use, I. Will. Deobf.
 This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
 
 Energized - Hard on the internet, pussy irl. A fellow brit as myself, except this guy is the type of guy you wouid use the term "Bri'ish' on, salty I deobfed his skid and leaked it to the public, ever since, he has been shitting his pants xD
