@@ -55,7 +55,11 @@ Energized - Hard on the internet, pussy irl. A fellow brit as myself, except thi
 
 Memer - Imagine not knowing a dogsfuck of java and being in a clients dev team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
 
-Omikron - If you think this guy shouldnt be on this list, you are seriosuly retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin miners until i tried his shit rat, L
+Omikron - If you think this guy shouldnt be on this list, you are seriosuly retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin miners until i tried his shit rat, L  
+https://www.urbandictionary.com/define.php?term=Omikron  
+"A retarded hypocrite who constantly steals other peoples code and whenever called out on it he sends his 11 year old fanbase to attack that person."
+"Person 1: Sigma is not a btc miner and everyone who says that is a clown.
+Person 2: Shut the fuck up u braindead omikron cock sucker."
 
 LeakedPVP - Helped omikron skid lots of clients and lots of code, he still isnt as bad as omikron though
 
