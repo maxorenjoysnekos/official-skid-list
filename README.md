@@ -1,4 +1,4 @@
-# Official Skid List
+# Official Skid List, feel free to make an issue and suggest some skids.
 Koolotta - Dramaalert Dev, abyss, virtue and 13 different clients in one.
 
 
