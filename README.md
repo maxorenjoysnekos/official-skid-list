@@ -44,7 +44,7 @@ Vladymyr - Creator of Remix Client AKA Jigsaw legit can't even bypass vanilla
 
 Mees - Creator of Remix Client, put a rat in it to get CP for his collection
 
-(Everything beyond this point is added by me and not verblefanboy)
+# (Everything beyond this point is added by me and not verblefanboy)
 
 Cedo - Creator of Fan client, the same shit client that intent still sells on his site, the src that got leaked was a newer version of what was even on the store, showed intent his "Hypixel" fly which infact was actually freecam, pasted autumns values and shit, all in all, a shit autumn paste into an intent base.
 
