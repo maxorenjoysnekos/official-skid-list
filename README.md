@@ -61,6 +61,6 @@ LeakedPVP - Helped omikron skid lots of clients and lots of code, he still isnt 
 
 Heroholland (or whatever his name is) - Still uses blink vanilla fly as a redesky fly, I had that 2 months ago dude.
 
-
+funkemunky - known for renaming latestncp to sentinel, this guy probs sleeps with his astolfo body pillow knowing thats the only comfort he will ever get
 
 # Sponsored by Fitmc pro pobob lava shulker sex dupe
