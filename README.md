@@ -59,12 +59,20 @@ https://www.urbandictionary.com/define.php?term=Omikron
 
 LeakedPVP - Helped omikron skid lots of clients and lots of code, he still isnt as bad as omikron though
 
+Andro - Omikrons Alt
+
 Heroholland (or whatever his name is) - Still uses blink vanilla fly as a redesky fly, I had that 2 months ago dude.
 
 funkemunky - known for renaming latest ncp to sentinel, this guy probs sleeps with his astolfo body pillow knowing thats the only comfort he will ever get   
 https://www.youtube.com/watch?v=PDuZIFvVe4Y talks about skidding ncp 1:12:30    
 bans people with fake sentinel messages https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s
 
+-----------------------------------------------------------------People who are retarded-----------------------------------------------------------------
 
+Mario - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts smort. I have annoyed him on a few alts and our dms are funny af.
+
+MichaelXF - Ran sigma and got OmniRat
+
+CrystalinQQ - Got him banned from r/minecraftclients and got exposed for dating a femboy, L
 
 # Sponsored by Fitmc pobob lava shulker sex dupe
