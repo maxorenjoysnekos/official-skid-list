@@ -67,7 +67,7 @@ funkemunky - known for renaming latest ncp to sentinel, this guy probs sleeps wi
 https://www.youtube.com/watch?v=PDuZIFvVe4Y talks about skidding ncp 1:12:30    
 bans people with fake sentinel messages https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s
 
------------------------------------------------------------------People who are retarded-----------------------------------------------------------------
+---------------------------------------------People who are retarded---------------------------------------------
 
 Mario - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts smort. I have annoyed him on a few alts and our dms are funny af.
 
