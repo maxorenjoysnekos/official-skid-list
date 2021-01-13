@@ -73,6 +73,6 @@ Mario - Whenever I make an alt, He is the first person I go to and annoy, It is 
 
 MichaelXF - Ran sigma and got OmniRat
 
-CrystalinQQ - Got him banned from r/minecraftclients and got exposed for dating a femboy, L
+CrystalinQQ - Got him banned from r/minecraftclients and he got exposed for dating a femboy, L
 
 # Sponsored by Fitmc pobob lava shulker sex dupe
