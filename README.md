@@ -44,8 +44,6 @@ Vladymyr - Creator of Remix Client AKA Jigsaw legit can't even bypass vanilla
 
 Mees - Creator of Remix Client, put a rat in it to get CP for his collection
 
-# (Everything beyond this point is added by me and not verblefanboy)
-
 Cedo - Creator of Fan client, the same shit client that intent still sells on his site, the src that got leaked was a newer version of what was even on the store, showed intent his "Hypixel" fly which infact was actually freecam, pasted autumns values and shit, all in all, a shit autumn paste into an intent base.
 
 Marshy - Some kid who thinks he is a pro hacker by joining clients dev teams and then leaking src (not to mention that he sucks dick for src leaks from masterof13fps, ItS NoT sKid iF ThEy DoNt fInD OuT), Ths client is on my watchlist, whatever obf they use, I. Will. Deobf.
@@ -67,4 +65,6 @@ funkemunky - known for renaming latest ncp to sentinel, this guy probs sleeps wi
 https://www.youtube.com/watch?v=PDuZIFvVe4Y talks about skidding ncp 1:12:30    
 bans people with fake sentinel messages https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s
 
-# Sponsored by Fitmc pro pobob lava shulker sex dupe
+
+
+# Sponsored by Fitmc pobob lava shulker sex dupe
