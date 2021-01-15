@@ -1,82 +1,140 @@
-# Official Skid List, feel free to make an issue and suggest some skids.
-Koolotta - Dramaalert Dev, abyss, virtue and 13 different clients in one.
 
+# Official Skid List
 
-ThatN3RD - Memenight Dev, XIV, virtue and 40 different clients in one.
+>**Koolotta** 
+-  "Developed" Client: abyss, virtue and 13 different clients in one.
+- Clown Reason: Client is 13 different clients in one, (abyss, virtue etc.)
 
-Bhopped - skidded discord for HopCord and sold it to buy money for food.
+> **ThatN3RD**
+- "Developed" Client: Memenight.
+- Clown Reason: Client is made of XIV, Virtue and 40 more clients
 
-
-x3 - skidded bitcoin core to make x3coin and also skidded windows api to make rats (he still denys ratting to this day).
-
-
-Ohare - skidded TempleOS to code OhareDaBossOS.
-
-
-Masterminecart - DRose dev, skidded and ratted it (shamefull).
-
-
-Tryhardyoda - Edwin townsley, developer of midnight v4, also responsible for camden rodriguez client.
-
-
-HirdKKK AKA Meir Nisim - Responsible for the dox of Camdem Rodriguez and made Memestick Hacked client (NO HATE) https://cdn.discordapp.com/attachments/595066424028954644/595421928903278594/HirdKKK.png.
-
-
-FinalExecption - ate to much fish and got fat then started skidding.
-
-
-SpecDaSavage - legit cant even make a boolean.
-
-
-Alerthie - skidded Spectre
-
-xXx_KiX_xXX - creator of the famous Glawk client, skidded all of OG's modules
-
-Verble - creator of Verble AntiLeak legit copy and pasted Alpha Antileak what a scum bag!
-
-Kant - Also known as Dxlton, known ratter. pasted Async Rat and Ratty to make Vis.Remote
-
-Hippo - The self proclaimed "asm god" really paste everything from GraxCode and stackoverflow.
-
-Zane - the biggest mc skid. Transfered IMGUI skeet ui to minecraft.
-
-Vladymyr - Creator of Remix Client AKA Jigsaw legit can't even bypass vanilla
-
-Mees - Creator of Remix Client, put a rat in it to get CP for his collection
-
-Cedo - Creator of Fan client, the same shit client that intent still sells on his site, the src that got leaked was a newer version of what was even on the store, showed intent his "Hypixel" fly which infact was actually freecam, pasted autumns values and shit, all in all, a shit autumn paste into an intent base.
-
-Marshy - Some kid who thinks he is a pro hacker by joining clients dev teams and then leaking src (not to mention that he sucks dick for src leaks from masterof13fps, ItS NoT sKid iF ThEy DoNt fInD OuT), Ths client is on my watchlist, whatever obf they use, I. Will. Deobf.
-This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
-
-Energized - Hard on the internet, pussy irl. A fellow brit as myself, except this guy is the type of guy you would use the term "Bri'ish" on, salty I deobfed his skid and leaked it to the public, ever since, he has been shitting his pants xD
-
-Memer - Imagine not knowing a dogsfuck of java and being in a clients dev team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
-
-Omikron - If you think this guy shouldnt be on this list, you are seriosuly retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin miners until i tried his shit rat, L  
-https://www.urbandictionary.com/define.php?term=Omikron  
-"A retarded hypocrite who constantly steals other peoples code and whenever called out on it he sends his 11 year old fanbase to attack that person."
-
-LeakedPVP - Helped omikron skid lots of clients and lots of code, he still isnt as bad as omikron though
-
-Andro - Omikrons Alt
-
-Heroholland (or whatever his name is) - Still uses blink vanilla fly as a redesky fly, I had that 2 months ago dude.
-
-Crystal ( Shadow client dev) - Owner of the biggest skid of 2020, shit client, everything is pasted, The WORST sold client ever, the render section screams skid. https://github.com/Shrunkie/Shadow-client src leaked by Shrunkie, pog
-
-funkemunky - known for renaming latest ncp to sentinel, this guy probs sleeps with his astolfo body pillow knowing thats the only comfort he will ever get   
-https://www.youtube.com/watch?v=PDuZIFvVe4Y talks about skidding ncp 1:12:30    
-bans people with fake sentinel messages https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s
-
----------------------------------------------People who are retarded---------------------------------------------
-
-Mario - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts smort. I have annoyed him on a few alts and our dms are funny af.
-
-MichaelXF - Ran sigma and got OmniRat
-
-CrystalinQQ - Got himself banned from r/minecraftclients (exposing pics of an underage femboy) and he got exposed for dating a femboy, L
+> **Bhopped**
+- "Developed": HopCord
+- Clown Reason: Stole discord design discord for HopCord and sold it to buy money for food.
 
 
 
-# Sponsored by Fitmc pobob lava shulker sex dupe
+> **x3**
+- "Developed": x3coin
+- Clown Reason: Skidded bitcoin core to make his own x3coin, and skidded windows api to make his rats (still denies that he made any rats)
+
+
+
+> **Ohare**
+ - "Developed": OhareDaBossOs
+ - Clown Reason: Pasted directly from TempleOS because he cant code anything.
+
+
+> **Masterminecart**
+ - "Developed": DRose Client
+ - Clown Reason: Pasted directly from everything else, and had the balls to rat it too.
+
+
+
+> **Tryhardyoda (Edwin Townsley)**
+- "Developed": Midnight v4 (Minecraft Client), responsible for Camden Rodriguez Client.
+- Clown Reason: Big Time Skid
+
+
+> **HirdKKK (Meir Nisim)**
+- "Developed": Memestick Hacked Client (NO HATE)
+- Clown Reason: Responsible for the dox of Camdem Rodriguez [Image](https://cdn.discordapp.com/attachments/595066424028954644/595421928903278594/HirdKKK.png.)
+
+> **FInalException**
+- "Developed": Some Clients
+- Clown Reason: Ate to much fish and got fat then started skidding. Got doxed and mom photos leaked too
+
+
+> **SpecDaSavage** 
+- Clown Reason: legit cant even make a boolean.
+
+
+> **Alerthie** 
+- "Developed": Some NN clients 
+- Clown Reason: Skidded Spectre
+
+> **xXx_KiX_xXX** 
+- "Developed": The Famous Glawk client
+- Clown Reason: skidded all of OG's modules
+
+> **Verble**
+- "Developed": Verble AntiLeak 
+- Clown Reason: Copy Pasted Alpha Antileak, also can't code anything!
+
+> **Kant (VyprHax, (Fake) Verble, Dxlton, Lucas Breeden)** 
+- "Developed": Autumn, Many Rats.
+- Clown Reason: Known Ratter. pasted Async Rat and Ratty to make Vis.Remote. Also pasted to make Autumn and added a rat to it.
+
+> **Hippo**
+- Clown Reason: The self proclaimed "ObjectWeb ASM
+ God", but pasted everything from GraxCode and StackOverflow.
+
+> **Zane**
+- "Developed": Exhibition (Not Skidded)
+- Clown Reason:  Transfered IMGUI skeet UI to Minecraft.
+
+> **Vladymyr** 
+- "Developed": Remix
+- Clown Reason: Creator of Remix Client AKA Jigsaw legit can't even bypass vanilla
+
+> **Mees** 
+- "Developed": Remix
+- Clown Reason: Most Likely put a rat in it to get CP for his collection (has collection has been confirmed)
+
+> **Cedo**
+- "Developed": Fan Client
+- Clown Reason: Fan client, The same, pasted crap client nef sells on his site. The source has been leaked many times over and over, and cedo has always been saying he's going to remove all of the skids, but he never does, but rather pastes more. He made a "Hypixel" fly which was actually freecam, pasted autumns values, esp's, disabler, fly code, and much more, all in all, a shit autumn paste into an intent base.
+
+> **Marshy** 
+- "Developed": MarshyWare
+- Clown Reason: Some kid who thinks he is a epic HACKER DEVELOPER by joining clients development teams and then leaking source codes. (Not to mention the fact that he uses MasterOf13FPS, He himself says "It's not a skid if they dont find out."), This client is on my agenda, whatever obfuscation he uses, **I WILL DEOBFUSCATE IT** This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
+
+> **Energized** 
+- "Developed": Some NN Client
+- Clown Reason: Hard on the internet, pussy irl. This guy is the type of guy you would use the term "Bri'ish." I deobfuscated his skid and leaked it to the public, ever since, he has been shitting his pants xD (his face is also public [here](https://www.youtube.com/channel/UCXiPmFhdxukVg-nfj0HwKCg)
+
+> **Memer** 
+- Clown Reason: Does not know a dogsfuck about java and sill is in  in a clients development team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
+
+> **Omikron**
+- "Developed": Skidma (Sigma)
+- Clown Reason: If you think this guy shouldn't be on this list, you are seriously retarded, he has pasted many clients for his shit skid called "Sigma", he has been pasting ever since daddy Arithmo has left. I never knew french people made such hidden bitcoin, and monero miners until i tried his shit rat, L  
+[His Urban Dictionary](https://www.urbandictionary.com/define.php?term=Omikron)   "A retarded hypocrite who constantly steals other peoples code and whenever called out on it he sends his 11 year old fanbase to attack that person."
+
+> **LeakedPVP** 
+- Client: Skidma (Sigma)
+- Clown Reason: Helped Omikron skid lots of clients and lots of code, he still isn't as bad as Omikron though
+
+> **Andro**
+ - "Developed": Skdma (Sigma)
+ - Clown Reason: Omikron's Alt
+ - Skidded: Every know client (because hes Omikron)
+
+> **Heroholland**  
+- Clown Reason: Still uses blink vanilla fly as a Redesky Fly, That was acceptable 3 months ago...
+
+> **Crystal ( Shadow Client / Mystra Client Developer)** 
+- "Developed": Mystra / Shadow Client
+- Clown Reason: Owner of the biggest skid of 2020, shit client, everything is pasted, The WORST sold client ever, the render section screams skid. [ source leaked by shrukie](https://github.com/Shrunkie/Shadow-client)
+
+> **FunkeMunky**
+- "Developed": Sentinel, Kairu, and many more skidded anticheats / clients 
+- Clown Reason: Renamed NCP to Sentinel, this guy probably sleeps with his astolfo body pillow knowing that's the only comfort he will ever get   
+[Talks about skidding NCP at 1:12:30](https://www.youtube.com/watch?v=PDuZIFvVe4Y) 
+[Bans people with fake sentinel messages](https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s)
+
+# Retards
+> **Mario** 
+- Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts like he has a brain. I have annoyed him on a few alts and our DM's are funny asf.
+
+> **MichaelXF**
+- Ran Sigma, promoted it, and is still mining Mario for the retard Omikron himself.
+
+> **CrystalinQQ** 
+- Clown Reason: Got himself banned from r/minecraftclients (exposing pics of an underage femboy) and he got exposed for dating a femboy, L
+
+
+
+## Sponsored by fitmc popbob lava shulker exploit dupe 2021 working download trial ** NO VIRUS ** ** NO SURVEY **
+no rat i swear good exploit
