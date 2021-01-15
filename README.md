@@ -63,6 +63,8 @@ Andro - Omikrons Alt
 
 Heroholland (or whatever his name is) - Still uses blink vanilla fly as a redesky fly, I had that 2 months ago dude.
 
+Crystal ( Shadow client dev) - Owner of the biggest skid of 2020, shit client, everything is pasted, The WORST sold client ever, the render section screams skid. https://github.com/Shrunkie/Shadow-client src leaked by Shrunkie, pog
+
 funkemunky - known for renaming latest ncp to sentinel, this guy probs sleeps with his astolfo body pillow knowing thats the only comfort he will ever get   
 https://www.youtube.com/watch?v=PDuZIFvVe4Y talks about skidding ncp 1:12:30    
 bans people with fake sentinel messages https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s
