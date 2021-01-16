@@ -39,7 +39,7 @@
 
 > **HirdKKK (Meir Nisim)**
 - "Developed": Memestick Hacked Client (NO HATE)
-- Clown Reason: Responsible for the dox of Camdem Rodriguez [Image](https://cdn.discordapp.com/attachments/595066424028954644/595421928903278594/HirdKKK.png.)
+- Clown Reason: Responsible for the dox of Camdem Rodriguez [Image](https://cdn.discordapp.com/attachments/595066424028954644/595421928903278594/HirdKKK.png)
 
 > **FInalException**
 - "Developed": Some Clients
@@ -88,14 +88,14 @@
 
 > **Marshy** 
 - "Developed": MarshyWare
-- Clown Reason: Some kid who thinks he is a epic HACKER DEVELOPER by joining clients development teams and then leaking source codes. (Not to mention the fact that he uses MasterOf13FPS, He himself says "It's not a skid if they dont find out."), This client is on my agenda, whatever obfuscation he uses, **I WILL DEOBFUSCATE IT** This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
+- Clown Reason: Some kid who thinks he is a epic HACKER DEVELOPER by joining clients development teams and then leaking source codes. (Not to mention the fact that he uses MasterOf13FPS, He himself says "It's not a skid if they dont find out."), This client is on my agenda, whatever obfuscation he uses, I will try and deobf. His favourite words, "I will deobfuscate Xatz" (No knowledge in Jbyte moment) This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
 
 > **Energized** 
-- "Developed": Some NN Client
+- "Developed": Some NN Client that I [deobfuscated](https://masterof13fps.com/forum/index.php?threads/pace-client-dobfuscated-and-decompiled-imagine-using-superblaubeere-obf-in-2021.7511/)
 - Clown Reason: Hard on the internet, pussy irl. This guy is the type of guy you would use the term "Bri'ish." I deobfuscated his skid and leaked it to the public, ever since, he has been shitting his pants xD (his face is also public [here](https://www.youtube.com/channel/UCXiPmFhdxukVg-nfj0HwKCg)
 
 > **Memer** 
-- Clown Reason: Does not know a dogsfuck about java and sill is in  in a clients development team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
+- Clown Reason: Does not know a dogsfuck about java and is still in a clients development team, this dumb fuck sucks marshy off whenever marshy feels depressed about me making fun of him.
 
 > **Omikron**
 - "Developed": Skidma (Sigma)
@@ -109,14 +109,14 @@
 > **Andro**
  - "Developed": Skdma (Sigma)
  - Clown Reason: Omikron's Alt
- - Skidded: Every know client (because hes Omikron)
+ - Skidded: Every known client (because hes Omikron)
 
-> **Heroholland**  
+> **Heroholand**  
 - Clown Reason: Still uses blink vanilla fly as a Redesky Fly, That was acceptable 3 months ago...
 
 > **Crystal ( Shadow Client / Mystra Client Developer)** 
 - "Developed": Mystra / Shadow Client
-- Clown Reason: Owner of the biggest skid of 2020, shit client, everything is pasted, The WORST sold client ever, the render section screams skid. [ source leaked by shrukie](https://github.com/Shrunkie/Shadow-client)
+- Clown Reason: Owner of the biggest skid of 2020, shit client, everything is pasted, The WORST sold client ever, the render section screams skid. [ source leaked by shrunkie](https://github.com/Shrunkie/Shadow-client)
 
 > **FunkeMunky**
 - "Developed": Sentinel, Kairu, and many more skidded anticheats / clients 
@@ -129,12 +129,23 @@
 - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts like he has a brain. I have annoyed him on a few alts and our DM's are funny asf.
 
 > **MichaelXF**
-- Ran Sigma, promoted it, and is still mining Mario for the retard Omikron himself.
+- Ran Sigma, promoted it. Legend has it, He is still mining Monero for Omikron to this day....
 
 > **CrystalinQQ** 
 - Clown Reason: Got himself banned from r/minecraftclients (exposing pics of an underage femboy) and he got exposed for dating a femboy, L
 
+# Credits & Cool Ppl (Not Skids)
+> **Gowixx**
+Made the read me look more swag
 
+> **Shrunkie**
+Exposing shadow/mystra client and leaking its src (also check out dny.wtf his swag image hosting so you can look less like a NN on discord)
+
+> **Intent**
+Making SuperheroFX so fang can simp for something other than astolfo
+
+> **NaakateM0LRatten**
+Sexing marshy's mom
 
 ## Sponsored by fitmc popbob lava shulker exploit dupe 2021 working download trial ** NO VIRUS ** ** NO SURVEY **
 no rat i swear good exploit
