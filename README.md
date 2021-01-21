@@ -124,6 +124,9 @@
 [Talks about skidding NCP at 1:12:30](https://www.youtube.com/watch?v=PDuZIFvVe4Y) 
 [Bans people with fake sentinel messages](https://www.youtube.com/watch?v=8udLTfmJBRc&t=70s)
 
+> **chocopie**
+- Clown Reason: Admitted to skidding, Has a shit src collection, imagine thinking 29 src codes is alot, I have 128, beat that you clown (the Src codes i collect, are collected for archival purposes, and so i can try and compile old clients for nostalgia)
+
 # Retards
 > **Mario** 
 - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts like he has a brain. I have annoyed him on a few alts and our DM's are funny asf.
