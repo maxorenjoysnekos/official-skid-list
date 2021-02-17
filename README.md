@@ -139,10 +139,10 @@
 
 # Credits & Cool Ppl (Not Skids)
 > **Gowixx**
-- Made the read me look more swag
+- Made the readme.md look more swag
 
 > **Shrunkie**
-- Exposing shadow/mystra client and leaking its src (also check out dny.wtf his swag image hosting so you can look less like a NN on discord)
+- Exposing shadow/mystra client and leaking its src (also check out clippy.gg his swag image hosting so you can look less like a NN on discord)
 
 > **Intent**
 - Making SuperheroFX so fang can simp for something other than astolfo
