@@ -90,7 +90,7 @@
 - "Developed": MarshyWare
 - Clown Reason: Some kid who thinks he is a epic HACKER DEVELOPER by joining clients development teams and then leaking source codes. (Not to mention the fact that he uses MasterOf13FPS, He himself says "It's not a skid if they dont find out."), This client is on my agenda, whatever obfuscation he uses, I will try and deobf. His favourite words, "I will deobfuscate Xatz" (No knowledge in Jbyte moment) This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
 
-> **Energized** 
+> **Energized (Edward Deegan)** 
 - "Developed": Some NN Client that I [deobfuscated](https://masterof13fps.com/forum/index.php?threads/pace-client-dobfuscated-and-decompiled-imagine-using-superblaubeere-obf-in-2021.7511/)
 - Clown Reason: Hard on the internet, pussy irl. This guy is the type of guy you would use the term "Bri'ish." I deobfuscated his skid and leaked it to the public, ever since, he has been shitting his pants xD (his face is also public [here](https://www.youtube.com/channel/UCXiPmFhdxukVg-nfj0HwKCg)
 
