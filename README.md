@@ -50,7 +50,7 @@
 - Clown Reason: legit cant even make a boolean.
 
 
-> **Alerthie** 
+> **Alerithe** 
 - "Developed": Some NN clients 
 - Clown Reason: Skidded Spectre
 
