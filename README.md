@@ -127,11 +127,13 @@
 > **chocopie**
 - Clown Reason: Admitted to skidding, Has a shit src collection, imagine thinking 29 src codes is alot, I have 128, beat that you clown (the Src codes i collect, are collected for archival purposes, and so i can try and compile old clients for nostalgia)
 
-> **NotOma (ThatOma, Oma, OmaDude)**
+> **NotOma (ThatOma, Oma, OmaDude, @YeahOMA )**
 - "Developed": Oma backdoor 0.5 (Travis backdoor skid), Oma backdoor Latest (Yoink rat copy/rename except with a different webhook api), Fake astolfo crack rat which he exposed to get karma on reddit even though he made the rat (wow)
-- Clown Reason: Where do i even start?  A no name "ratter" (put in quotes because he is shit at ratting) Tried to manipulate me to join him in ratting "5000 kids" and then ended up getting exposed by me, read this https://www.reddit.com/r/minecraftclients/comments/mneifa/notoma_expose_usnoorevelations9835_skid_momento/ 
+- Clown Reason: Where do i even start?   A no name "ratter" (put in quotes because he is shit at ratting) 
+- Tried to manipulate me to join him in ratting "5000 kids" and then ended up getting exposed by me, read this https://www.reddit.com/r/minecraftclients/comments/mneifa/notoma_expose_usnoorevelations9835_skid_momento/ 
 - Part 2: https://www.reddit.com/r/minecraftclients/comments/mnjrhf/response_to_omas_pathetic_response_john_swan/
 - Part 3: https://www.reddit.com/r/minecraftclients/comments/mnom05/oma_being_a_clown_exposed_again_part_3_john_swan/
+- He is still crying about it because he has to rat children to cope in his shitty life since his mother couldnt afford an abortion
 
 # Retards
 > **Mario** 
