@@ -137,7 +137,7 @@
 
 > **winterfoxx**
 - "Developed": [Prismatic Client](https://masterof13fps.com/forum/index.php?threads/prismatic-client-cracked-by-napoleon-zoomberparts.7603/#post-62063)
-- Thought it was a nice idea to use cracked binscure as obf because his mommy can't pay for actual Binscure 
+- Clown Reason: Thought it was a nice idea to use cracked binscure as obf because his mommy can't pay for actual Binscure. Got his $10 client cracked (by me) 
 
 # Retards
 > **Mario** 
