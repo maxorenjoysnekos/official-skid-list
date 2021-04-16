@@ -160,5 +160,9 @@
 > **NaakateM0LRatten**
 - Sexing marshy's mom
 
+> **Mastercooker (x4e)**
+- Making Binscure obfuscator, generally cool man. Contributes to obfuscators and deobfuscators, and usually has repos in that field.
+- 10/10 would recommend Binscure (buy it though 😠)
+
 ## Sponsored by fitmc popbob lava shulker exploit dupe 2021 working download trial ** NO VIRUS ** ** NO SURVEY **
 no rat i swear good exploit
