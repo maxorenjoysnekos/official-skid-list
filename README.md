@@ -152,8 +152,6 @@
 > **Orange / Orangified**
 - Clown Reason: The worlds biggest retard, still has something against me, tried to get PrinceKin to "crack" my free clients while ruining both of their reputations. Down Syndrome shown at early encounters with him, simps for rektsky (LOL DEAD CLIENT) Still hates me for banning and removing his beta tester role in Xatz client discord, a certified No Name who is looking for clout, rn he is forking this and trying to act like he is all so smart and he finally got back at Napoleon!1!2!!2!1. Tl;Dr: no name with autism because his parents drunk a shit ton of alcohol (moment)
 # Credits & Cool Ppl (Not Skids)
-> **Gowixx**
-- Made the readme.md look more swag
 
 > **Shrunkie**
 - Exposing shadow/mystra client and leaking it's src
