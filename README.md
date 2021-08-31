@@ -88,7 +88,7 @@
 
 > **Marshy** 
 - "Developed": MarshyWare
-- Clown Reason: Some kid who thinks he is a epic HACKER DEVELOPER by joining clients development teams and then leaking source codes. (Not to mention the fact that he uses MasterOf13FPS, He himself says "It's not a skid if they dont find out."), This client is on my agenda, whatever obfuscation he uses, I will try and deobf. His favourite words, "I will deobfuscate Xatz" (No knowledge in Jbyte moment) This guy is retarded and cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him.
+- Clown Reason: Joined a clients dev team and then leaked src cant fix simple errors without his sugar daddy energized who is in a secret underage gay relationship with him. 
 
 > **Energized (Edward Deegan)** 
 - "Developed": Some NN Client that I [deobfuscated](https://masterof13fps.com/forum/index.php?threads/pace-client-dobfuscated-and-decompiled-imagine-using-superblaubeere-obf-in-2021.7511/)
@@ -137,7 +137,11 @@
 
 > **winterfoxx**
 - "Developed": [Prismatic Client](https://masterof13fps.com/forum/index.php?threads/prismatic-client-cracked-by-napoleon-zoomberparts.7603/#post-62063)
-- Clown Reason: Thought it was a nice idea to use cracked binscure as obf because his mommy can't pay for actual Binscure. Got his $10 client cracked (by me) 
+- Clown Reason: Thought it was a nice idea to use cracked binscure as obf and then shit talk because his mommy can't pay for actual Binscure. Got his $10 client cracked (by me) 
+
+> **Kambing/ProfKambing**
+- "Developed": Numerous Pastes 
+- Clown Reason: This skid is very emasculate, His testosterone is lacking, Average anarchy user that has never left anarchy community and thinks **theMcEntityPlayer** is the way to go!1! By far the most retarded thing he has done is join my discord server and ask me for PenisESP src and then upload it on github saying "Xatz PenisESP Src Leaked ezzzz" 
 
 # Retards
 > **Mario** 
@@ -149,8 +153,21 @@
 > **CrystalinQQ** 
 - Clown Reason: Got himself banned from r/minecraftclients (exposing pics of an underage femboy) and he got exposed for dating a femboy, L
 
+> **SyndicateNA**
+- Clown reason: Faggot 1.12 Larper who thought he could groom 1.8 groomers, instead got emasculated and now he is trying to cope
+
+> **Innards**
+- Clown Reason: This uncultured swine has never left the anarchy community, he also testifies his "big name" yet he seems as nn as a Chinese Citzen who has gone "missing" 
+
+
+![alt text](https://i.imgur.com/gOqkvfQ.png)
+
+He sent that when someone asked for scaffold bypass regarding a 1.8 client and I sent them some joke code
+
 > **Orange / Orangified**
 - Clown Reason: The worlds biggest retard, still has something against me, tried to get PrinceKin to "crack" my free clients while ruining both of their reputations. Down Syndrome shown at early encounters with him, simps for rektsky (LOL DEAD CLIENT) Still hates me for banning and removing his beta tester role in Xatz client discord, a certified No Name who is looking for clout, rn he is forking this and trying to act like he is all so smart and he finally got back at Napoleon!1!2!!2!1. Tl;Dr: no name with autism because his parents drunk a shit ton of alcohol (moment)
+
+
 # Credits & Cool Ppl (Not Skids)
 
 > **Shrunkie**
