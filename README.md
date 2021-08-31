@@ -143,6 +143,15 @@
 - "Developed": Numerous Pastes 
 - Clown Reason: This skid is very emasculate, His testosterone is lacking, Average anarchy user that has never left anarchy community and thinks **theMcEntityPlayer** is the way to go!1! By far the most retarded thing he has done is join my discord server and ask me for PenisESP src and then upload it on github saying "Xatz PenisESP Src Leaked ezzzz" 
 
+> **p4nda/zoom**
+- "Developed": Europa and some other clients
+- Clown Reason: Not a skid, but steals every visuals idea from phobos to his glorious cheat "Europa", aka big phobos fanboy.
+
+> **Perry**
+- "Developed": His infamous phobos skid 
+- Clown Reason: Didn't give neko+ server back, claims neko+ is a skid when in fact he skidded a lot of our code, spends his days improving his skid's security by getting info from users on a not very suspicious "Tracker".
+
+
 # Retards
 > **Mario** 
 - Whenever I make an alt, He is the first person I go to and annoy, It is so fucking funny screwing with him and seeing him wait for Omikron to give him comebacks, he knows nothing about java or ports but acts like he has a brain. I have annoyed him on a few alts and our DM's are funny asf.
@@ -167,6 +176,8 @@ He sent that when someone asked for scaffold bypass regarding a 1.8 client and I
 > **Orange / Orangified**
 - Clown Reason: The worlds biggest retard, still has something against me, tried to get PrinceKin to "crack" my free clients while ruining both of their reputations. Down Syndrome shown at early encounters with him, simps for rektsky (LOL DEAD CLIENT) Still hates me for banning and removing his beta tester role in Xatz client discord, a certified No Name who is looking for clout, rn he is forking this and trying to act like he is all so smart and he finally got back at Napoleon!1!2!!2!1. Tl;Dr: no name with autism because his parents drunk a shit ton of alcohol (moment)
 
+> **Hqrion**
+- Clown Reason: Got clout from leaked phobos, claims he's a master cracker but can't really do shit, legends say he's still trying to dump spongebobhax 
 
 # Credits & Cool Ppl (Not Skids)
 
@@ -182,6 +193,10 @@ He sent that when someone asked for scaffold bypass regarding a 1.8 client and I
 > **Mastercooker (x4e)**
 - Making Binscure obfuscator, generally cool man. Contributes to obfuscators and deobfuscators, and usually has repos in that field.
 - 10/10 would recommend Binscure (buy it though 😠)
+
+> **rTe_**
+- Being cool
+- watched femboy porn once to be a xatz dev
 
 ## Sponsored by fitmc popbob lava shulker exploit dupe 2021 working download trial ** NO VIRUS ** ** NO SURVEY **
 no rat i swear good exploit
