@@ -184,6 +184,9 @@ He sent that when someone asked for scaffold bypass regarding a 1.8 client and I
 > **Shrunkie**
 - Exposing shadow/mystra client and leaking it's src
 
+> **maxor**
+- sexed rte and napolean. (has never skidded(100%%%%))
+
 > **Intent**
 - Making SuperheroFX so fang can simp for something other than astolfo
 
